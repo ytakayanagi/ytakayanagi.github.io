@@ -1,1 +1,0 @@
-# ytakayanagi.github.io
